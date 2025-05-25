@@ -5,5 +5,5 @@ ___
 ___
 
 <p align="center">
- <a href="https://genshin-impact.fandom.com/wiki/Wriothesley">wrio</a>ㅤ...ㅤ<em>yume</em></p>
+ <a href="https://genshin-impact.fandom.com/wiki/Wriothesley">wrio</a>ㅤ<em>yume</em></p>
 <p align="center">𝐫𝐮𝐚𝐧 𝐦𝐞𝐢ㅤ𖧧ㅤ<code>kinnie.</code></p>
