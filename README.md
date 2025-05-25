@@ -15,3 +15,10 @@ ___
 <br>
 
 <p align="right"><ins>about</ins>‎ㅤ<em>me</em></p>
+
+
+
+
+
+https://github.com/user-attachments/assets/d25b7234-d944-4d07-85b6-c45e285461e6
+
