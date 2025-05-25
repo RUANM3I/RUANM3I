@@ -25,7 +25,7 @@ ___
 
 3. ᠀ ᎓ me gusta mucho investigar significados ambiguos de aquellas palabras que no se usan cotidianamente. soy de usar un vocabulario formal con gente fuera de mi círculo de amigos. ya, si formas parte de éste, claramente te darás cuenta que soy más libre respecto a mi forma de hablar.
 
-4. ᠀ ᎓ amo jugar juegos gacha, ya sea cookie run kingdom, honkai star rail, genshin impact y project sekai. soy una "husbando collector" pero también tiró por aquellos personajes femeninos que se adaptan a mis gusto, o necesidades.
+4. ᠀ ᎓ amo jugar juegos gacha, ya sea cookie run kingdom, honkai star rail, genshin impact y project sekai. soy una "husbando collector" pero también tiro por aquellos personajes femeninos que se adaptan a mis gusto, o necesidades.
 
 5. ᠀ ᎓ en pony town suelo estar afk, la mayoría de veces es así, pero otras veces simplemente estoy viendo la pantalla mientras escucho música. si quieres hablarme, eres bienvenido. sin embargo, no lo hagas si apareces en mi lista de dni.
 
