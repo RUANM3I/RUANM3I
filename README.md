@@ -17,7 +17,7 @@ ___
 #### <p align="right"><ins>about</ins>‎ㅤ<em>me</em></p>
 <p align="right">surprise i'm gonna write it in spanish, my english is quite poor...</p>
 
-<br><br>
+___
 
 1. ᠀ ᎓ soy alguien cuyo interés siempre está disperso por todos lados. el conocimiento es poder, y genuinamente me gusta saber más cosas; información fuera de mi zona de confort, mejor dicho.
    
@@ -35,7 +35,7 @@ ___
 
 8. ᠀ ᎓ amo hololive!! mi oshi es marine houshou, mori calliope & lui takane.
 
-<br><br>
+___
 
 https://github.com/user-attachments/assets/d25b7234-d944-4d07-85b6-c45e285461e6
 
