@@ -14,6 +14,4 @@ ___
 
 <br>
 
-<p align="right">about</p>
-
-_me_ :
+<p align="right"><ins>about</ins>‎ㅤ<em>me</em></p>
