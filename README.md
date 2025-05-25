@@ -38,3 +38,7 @@ ___
 <br><br>
 
 https://github.com/user-attachments/assets/d25b7234-d944-4d07-85b6-c45e285461e6
+
+<br><br>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gf2p93s05qadzjbx9yblox2ds&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=0000ff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
