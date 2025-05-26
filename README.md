@@ -17,23 +17,23 @@ ___
 #### <p align="right"><ins>about</ins>‎ㅤ<em>me</em></p>
 <p align="right">surprise i'm gonna write it in spanish, my english is quite poor...</p>
 
-___
+<br>
 
-1. ᠀ ᎓ soy alguien cuyo interés siempre está disperso por todos lados. el conocimiento es poder, y genuinamente me gusta saber más cosas; información fuera de mi zona de confort, mejor dicho.
-   
-2. ᠀ ᎓ amo leer, ya sea a través de un libro físico o digitalmente. gracias a las nuevas tecnologías, me es más cómodo leer por pdf, pero también soy fanática de coleccionar libros/mangas, por lo que ambas formas son un huge w.
+><ins>1. ᠀ ᎓</ins> soy alguien cuyo interés siempre está disperso por todos lados. el conocimiento es poder, y genuinamente me gusta saber más cosas; información fuera de mi zona de confort, mejor dicho.
 
-3. ᠀ ᎓ me gusta mucho investigar significados ambiguos de aquellas palabras que no se usan cotidianamente. soy de usar un vocabulario formal con gente fuera de mi círculo de amigos. ya, si formas parte de éste, claramente te darás cuenta que soy más libre respecto a mi forma de hablar.
+><ins>2. ᠀ ᎓</ins> amo leer, ya sea a través de un libro físico o digitalmente. gracias a las nuevas tecnologías, me es más cómodo leer por pdf, pero también soy fanática de coleccionar libros/mangas, por lo que ambas formas son un huge w.
 
-4. ᠀ ᎓ amo jugar juegos gacha, ya sea cookie run kingdom, honkai star rail, genshin impact y project sekai. soy una "husbando collector" pero también tiro por aquellos personajes femeninos que se adaptan a mis gusto, o necesidades.
+><ins>3. ᠀ ᎓</ins> me gusta mucho investigar significados ambiguos de aquellas palabras que no se usan cotidianamente. soy de usar un vocabulario formal con gente fuera de mi círculo de amigos. ya, si formas parte de éste, claramente te darás cuenta que soy más libre respecto a mi forma de hablar.
 
-5. ᠀ ᎓ en pony town suelo estar afk, la mayoría de veces es así, pero otras veces simplemente estoy viendo la pantalla mientras escucho música. si quieres hablarme, eres bienvenido. sin embargo, no lo hagas si apareces en mi lista de dni.
+><ins>4. ᠀ ᎓</ins> amo jugar juegos gacha, ya sea cookie run kingdom, honkai star rail, genshin impact y project sekai. soy una "husbando collector" pero también tiro por aquellos personajes femeninos que se adaptan a mis gusto, o necesidades.
 
-6. ᠀ ᎓ amo hacer oc y darles un lore, a veces profundo, y a veces pequeño, pero necesario. mi oc principal es Meru, la secretaria del Duque de Meropide, Wriothesley. podría hacer unos repositorios aparte explicando su lore brevemente junto a varios dibujos, solo para los curiosos.
+><ins>5. ᠀ ᎓</ins> en pony town suelo estar afk, la mayoría de veces es así, pero otras veces simplemente estoy viendo la pantalla mientras escucho música. si quieres hablarme, eres bienvenido. sin embargo, no lo hagas si apareces en mi lista de dni.
 
-7. ᠀ ᎓ en pony town, suelo estar en el server spanish & english, en cookie run kingdom estoy en el server acebo/hollyberry, y en genshin y hsr estoy en el server america.
+><ins>6. ᠀ ᎓</ins> amo hacer oc y darles un lore, a veces profundo, y a veces pequeño, pero necesario. mi oc principal es Meru, la secretaria del Duque de Meropide, Wriothesley. podría hacer unos repositorios aparte explicando su lore brevemente junto a varios dibujos, solo para los curiosos.
 
-8. ᠀ ᎓ amo hololive!! mi oshi es marine houshou, mori calliope & lui takane.
+><ins>7. ᠀ ᎓</ins> en pony town, suelo estar en el server spanish & english, en cookie run kingdom estoy en el server acebo/hollyberry, y en genshin y hsr estoy en el server america.
+
+><ins>8. ᠀ ᎓</ins> amo hololive!! mi oshi es marine houshou, mori calliope & lui takane.
 
 ___
 
