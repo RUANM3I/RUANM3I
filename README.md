@@ -15,7 +15,8 @@ ___
 <br>
 
 #### <p align="right"><ins>about</ins>‎ㅤ<em>me</em></p>
-<p align="right">surprise i'm gonna write it in spanish, my english is quite poor...</p>
+<p align="right">
+ surprise i'm gonna write it in spanish, my <u>english</u> is quite poor...</p>
 
 <br>
 
