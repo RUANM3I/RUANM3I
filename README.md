@@ -22,13 +22,13 @@ ___
 
 ><ins>1. ᠀ ᎓</ins> soy alguien cuyo interés siempre está disperso por todos lados. el conocimiento es poder, y genuinamente me gusta saber más cosas; información fuera de mi zona de confort, mejor dicho.
 
-><ins>2. ᠀ ᎓</ins> amo leer, ya sea a través de un libro físico o digitalmente. gracias a las nuevas tecnologías, me es más cómodo leer por pdf, pero también soy fanática de coleccionar libros/mangas, por lo que ambas formas son un huge w.
+><ins>2. ᠀ ᎓</ins> amo leer, ya sea a través de un libro físico o digital. gracias a las nuevas tecnologías, me es más cómodo leer por pdf, pero también soy fanática de coleccionar libros/mangas, por lo que ambas formas son un huge w.
 
 ><ins>3. ᠀ ᎓</ins> me gusta mucho investigar significados ambiguos de aquellas palabras que no se usan cotidianamente. soy de usar un vocabulario formal con gente fuera de mi círculo de amigos. ya, si formas parte de éste, claramente te darás cuenta que soy más libre respecto a mi forma de hablar.
 
 ><ins>4. ᠀ ᎓</ins> amo jugar juegos gacha, ya sea cookie run kingdom, honkai star rail, genshin impact y project sekai. soy una "husbando collector" pero también tiro por aquellos personajes femeninos que se adaptan a mis gusto, o necesidades.
 
-><ins>5. ᠀ ᎓</ins> en pony town suelo estar afk, la mayoría de veces es así, pero otras veces simplemente estoy viendo la pantalla mientras escucho música. si quieres hablarme, eres bienvenido. sin embargo, no lo hagas si apareces en mi lista de dni.
+><ins>5. ᠀ ᎓</ins> en pony town suelo estar afk (la mayoría de veces), pero otras veces simplemente estoy viendo la pantalla mientras escucho música. si quieres hablarme, eres bienvenido. sin embargo, no lo hagas si apareces en mi lista de dni.
 
 ><ins>6. ᠀ ᎓</ins> amo hacer oc y darles un lore, a veces profundo, y a veces pequeño, pero necesario. mi oc principal es Meru, la secretaria del Duque de Meropide, Wriothesley. podría hacer unos repositorios aparte explicando su lore brevemente junto a varios dibujos, solo para los curiosos.
 
