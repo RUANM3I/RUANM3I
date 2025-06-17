@@ -1,4 +1,8 @@
 <p align="center">𝒓𝒆𝒂𝒍𝒊𝒕𝒚ㅤ𝒃𝒊𝒐𝒍𝒐𝒈𝒚ㅤ✶ㅤ𝒑𝒂𝒔𝒕𝒓𝒚</p>
+<p align="center">
+  <img src="https://img.shields.io/badge/೨᧙ ᤳ-ꭑ.erᴗ-lightblue" alt="light bueText">
+</p>
+
 
 ___
 ![1000067509](https://github.com/user-attachments/assets/235deb4b-9a12-43fe-aec6-982b70b7db24)
@@ -41,10 +45,5 @@ ___
 https://github.com/user-attachments/assets/d25b7234-d944-4d07-85b6-c45e285461e6
 
 <br><br>
-<p align="center">
-  <img src="https://img.shields.io/badge/meru-2308-violet" alt="violet Text">
-</p>
-
-<br>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=gf2p93s05qadzjbx9yblox2ds&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=0000ff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
