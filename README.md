@@ -40,6 +40,8 @@ ___
 
 ><ins>8. ᠀ ᎓</ins> amo hololive!! mi oshi es marine houshou, mori calliope & lui takane.
 
+><ins>9. ᠀ ᎓</ins> no soy muy activa en github; solo entro para editar mis repositorios al sentirme inspirada. pero no te preocupes, si me sigues en algún momento te devolveré el follow. no te ignoro, de hecho, lo agradezco. me gusta interactuar con gente similar a mi.
+
 ___
 
 https://github.com/user-attachments/assets/d25b7234-d944-4d07-85b6-c45e285461e6
