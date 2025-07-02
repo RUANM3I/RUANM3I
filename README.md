@@ -16,6 +16,10 @@ ___
 
 ![1000067653](https://github.com/user-attachments/assets/e9568ee4-c3fa-484d-a403-157639ff7a58)
 
+![1000072128](https://github.com/user-attachments/assets/d4939761-328d-4002-89f4-12435961ace5)
+
+
+
 <br>
 
 #### <p align="right"><ins>about</ins>‎ㅤ<em>me</em></p>
