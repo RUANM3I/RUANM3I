@@ -42,6 +42,8 @@ ___
 
 ><ins>9. ᠀ ᎓</ins> no soy muy activa en github; solo entro para editar mis repositorios al sentirme inspirada. pero no te preocupes, si me sigues en algún momento te devolveré el follow. no te ignoro, de hecho, lo agradezco. me gusta interactuar con gente similar a mi.
 
+><ins>10. ᠀ ᎓</ins> soy una wriothesley yume no-posesiva. habitualmente, las personas que conocí son muy reservados con sus yume, pero, si compartes el amor a wriothesley, ¡sientete libre de hablarme! me enorgullece saber que wriothesley es querido y apreciado en un sector grande de personas. sin embargo, por favor, no interactues si queres "competir" conmigo. perdón pero, ¿por qué harías eso?
+
 <br><br>
 ___
 
