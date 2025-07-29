@@ -30,7 +30,7 @@ ___
 
 ><ins>3. ᠀ ᎓</ins> me gusta mucho investigar significados ambiguos de aquellas palabras que no se usan cotidianamente. soy de usar un vocabulario formal con gente fuera de mi círculo de amigos. ya, si formas parte de éste, claramente te darás cuenta que soy más libre respecto a mi forma de hablar.
 
-><ins>4. ᠀ ᎓</ins> amo jugar juegos gacha, ya sea cookie run kingdom, honkai star rail, genshin impact y project sekai. soy una "husbando collector" pero también tiro por aquellos personajes femeninos que se adaptan a mis gusto, o necesidades.
+><ins>4. ᠀ ᎓</ins> amo jugar juegos gacha, ya sea cookie run kingdom, honkai star rail, genshin impact y project sekai. soy una "husbando collector" pero también tiro por aquellos personajes femeninos que se adaptan a mis gusto, o necesidades. Recientemente me adentré en el juego de Umamusume: Pretty Derby. Estoy viendo el anime, muy entretenido y estresante.
 
 ><ins>5. ᠀ ᎓</ins> en pony town suelo estar afk (la mayoría de veces), pero otras veces simplemente estoy viendo la pantalla mientras escucho música. si quieres hablarme, eres bienvenido. sin embargo, no lo hagas si apareces en mi lista de dni.
 
