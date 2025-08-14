@@ -1,6 +1,7 @@
 <p align="center">𝒓𝒆𝒂𝒍𝒊𝒕𝒚ㅤ𝒃𝒊𝒐𝒍𝒐𝒈𝒚ㅤ✶ㅤ𝒑𝒂𝒔𝒕𝒓𝒚</p>
+
 <p align="center">
-  <img src="https://img.shields.io/badge/೨᧙ ᤳ-ꭑ.erᴗ-lightblue" alt="light bueText">
+  <img src="https://img.shields.io/badge/ㅤ೨᧙ ᤳ-ꭑ.erᴗ-lightblue?logo=github" alt="light bueText">
 </p>
 
 
