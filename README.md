@@ -48,6 +48,7 @@ ___
 ><ins>10. ᠀ ᎓</ins> soy una wriothesley yume no-posesiva. habitualmente, las personas son muy reservados con sus yume, pero, si compartes el mismo amor por wriothesley, ¡sientete libre de hablarme! me enorgullece saber que wriothesley es querido y apreciado en un sector grande de personas. sin embargo, por favor, no interactues si queres "competir" conmigo. perdón pero, ¿por qué harías eso?
 
 <br><br>
+
 ___
 
 ![1000071599](https://github.com/user-attachments/assets/05a08188-5480-453e-8510-00959a4b03f3)
