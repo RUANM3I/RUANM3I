@@ -1,7 +1,9 @@
 <p align="center">𝒓𝒆𝒂𝒍𝒊𝒕𝒚ㅤ𝒃𝒊𝒐𝒍𝒐𝒈𝒚ㅤ✶ㅤ𝒑𝒂𝒔𝒕𝒓𝒚</p>
 
 <p align="center">
-<img width="70" height="70" alt="1000080208" src="https://github.com/user-attachments/assets/74cec902-7a93-43f7-80bc-72efc5652039" />  <img src="https://img.shields.io/badge/ㅤ೨᧙ ᤳ-ꭑ.erᴗ-lightblue" alt="light bueText"> <img width="70" height="70" alt="1000080207" src="https://github.com/user-attachments/assets/5f1b8155-1580-4b4e-b993-8bec5d2cd6fb" />
+<img width="75" height="70" alt="1000080231" src="https://github.com/user-attachments/assets/24100e80-e75b-4892-bc0e-e190c0b1b507" />  
+ <img src="https://img.shields.io/badge/ㅤ೨᧙ ᤳ-ꭑ.erᴗ-lightblue" alt="light bueText"> 
+<img width="75" height="70" alt="1000080231" src="https://github.com/user-attachments/assets/24100e80-e75b-4892-bc0e-e190c0b1b507" />
 </p>
 
 
