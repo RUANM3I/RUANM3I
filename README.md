@@ -2,7 +2,7 @@
 
 <p align="center">
 <img width="75" height="70" alt="1000080231" src="https://github.com/user-attachments/assets/24100e80-e75b-4892-bc0e-e190c0b1b507" />  
- <img src="https://img.shields.io/badge/ㅤ೨᧙ ᤳ-ꭑ.erᴗ-lightblue" alt="light blue Text"> 
+ <img src="https://img.shields.io/badge/೨᧙ ᤳ-ꭑ.erᴗ-lightblue" alt="light blue Text"> 
 <img width="75" height="70" alt="1000080231" src="https://github.com/user-attachments/assets/24100e80-e75b-4892-bc0e-e190c0b1b507" />
 </p>
 
